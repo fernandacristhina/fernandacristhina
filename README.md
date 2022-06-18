@@ -1,4 +1,4 @@
-Hi 👋 My name is Fernanda Cristhina
+ Eai galeuris, aqui é Fernanda Cristhina
 ===================================
 
 Estudante
